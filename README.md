@@ -1,4 +1,4 @@
-# u-me-and-a-little-box-of-bones-
+# u me and a little box of bones
 
 *welcome in :)*
 
